@@ -6,7 +6,7 @@
 
 💞️ I’m enthusiastic about collaborating on open-source projects that solve real-world problems and contribute to sustainable development.
 
-📫 You can reach out to me at [armanhasansanto@gmail.com](mailto:armanhasansanto799@gmail.com) or connect with me on [Telegram](https://t.me/tbbarman).
+📫 You can reach out to me at [Gmail](mailto:armanhasansanto799@gmail.com) or connect with me on [Telegram](https://t.me/tbbarman).
 
 😄 Pronouns: He
 
